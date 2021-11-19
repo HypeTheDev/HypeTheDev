@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HypeTheDev
+- 👀 I’m interested in Crypto, Daap creation, NFT projects
+- 🌱 I’m currently learning Blockchain related programming
+- 💞️ I’m looking to collaborate on anything that will help me learn!
+- 📫 How to reach me Email - joshhypebeats@gmail.com
